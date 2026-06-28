@@ -1,4 +1,4 @@
-# 
+# Sécurisé Cubase préréglages pour Mac OS | Avancé Cubase préréglages pour PC Windows. Avec encodage vidéo et préréglages d'export — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
